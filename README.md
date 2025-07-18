@@ -1,2 +1,2 @@
 # repositorio1
-Inspirado x alguien que me ha cambiado la vida: JC
+Empieza una historia inspirada x alguien que me ha cambiado la vida: JC
